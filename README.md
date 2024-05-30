@@ -1,6 +1,6 @@
 # 江湖救急aqq入口
 
-<a href="https://8h9e.vip/">>>>>>>>>点/此/进/入/观/看/<<<<<<<<</a>
+<hr/> <a href="https://github.com/nemmp/jaok/issues/2">👉👉👉♥♥点此进入♥观看入口👈👉👉</a><hr/>
 
 江湖救急aqq入口
 在这十来年里，几乎每一天的睡眠时间，都不超过两个时辰！
